@@ -3,12 +3,14 @@
 
 ### Всегда **не против** новых знакомств и друзей ! Можете смело писать в висп и подходить, правда большую часть времени я **афк** ; ( 
 
-#### Сижу на зонах хср , хеталии и дорам или в дереве около кафе
+#### *DNI : : гомо/трансфоб , антис , верующий фанатик , нет хотя бы чуть-чуть общих фд ! а так мне все равно какой вы человек* 
 
-#### *нам будет сложно общаться , если : вы гомо/трансфоб , антис , верующий фанатик , нет хотя бы чуть-чуть общих фд ! а так мне все равно какой вы человек* 
+#### *BYI : : я несерьезная личность , но все еще веду себя осторожно и отдаленно ; я в отношениях , поэтому не приемлю романтики ; люблю капс и бредятину писать*
 
 #### Мои соцсети :
 
-[<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/wtyik) [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/twitter.svg' alt='twitter' height='40'>](https://twitter.com/ssqqqQK)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/discord.svg' alt='discord' height='40'>](https://discord.gg/QPmNXd8Q) [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/telegram.svg' alt='telegram' height='40'>](https://t.me/Fggwsii) [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/tiktok.svg' alt='tiktok' height='40'>](https://www.tiktok.com/@gulig5or?_r=1&_t=ZM-91CXiPfhvJY)
-
+- [twt](https://twitter.com/ssqqqQK)
+- [discord](https://discord.gg/QPmNXd8Q)
+-  [tg](https://t.me/Fggwsii)
+-  [tt](https://www.tiktok.com/@gulig5or?_r=1&_t=ZM-91CXiPfhvJY)
 
