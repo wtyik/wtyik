@@ -3,12 +3,12 @@
 
 ### Всегда **не против** новых знакомств и друзей ! Можете смело писать в висп и подходить, правда большую часть времени я **афк** ; ( 
 
-#### *DNI : : гомо/трансфоб , антисы , неженки* 
+#### *DNI : : гомо / трансфобы , антисы , неженки* 
 
 #### Мои соцсети :
 
 - [twt](https://twitter.com/ssqqqQK)
-- [discord](https://discord.gg/QPmNXd8Q)
+- [ds] - wtyik
 -  [tg](https://t.me/latvinc)
 -  [tt](https://www.tiktok.com/@gulig5or?_r=1&_t=ZM-91CXiPfhvJY)
 
